@@ -1,1 +1,0 @@
-Some new updates, yuppii!
